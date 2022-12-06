@@ -1,4 +1,4 @@
-We are WTS, A white hat hacking Team whose entire purpose is to protect people who got their data leaked
+We are WTS, A Cybersecurity Team whose entire purpose is to protect people who got their sensitive data leaked
 
 
 
